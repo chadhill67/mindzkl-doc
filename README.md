@@ -10,6 +10,7 @@ What has clipxx done?
 3. Talking about scamming poeple
 4. Lies about people
 5. Spreading rumoors
+6. SKIDDING
 
 i could list these all day but i'd be here for hours
 
