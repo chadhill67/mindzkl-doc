@@ -13,6 +13,7 @@ What has clipxx done?
 6. SKIDDING
 7. NUKING PROJECTS (nyua)
 8. PINGING me every 2 hrs asking for help becuase he cant do shit
+9. him trying to put the blame on me that nyua got nuked
 
 i could list these all day but i'd be here for hours
 
@@ -21,6 +22,8 @@ and also i tried saying hi today and he was so rude!!
 image 1: based on him lying saying he has 1.1m dollars which is such a lie
 
 image 2: this i9s base on him and someone else im not going to name names hacked everything
+
+image 3: him trying to put the blame on me that nyua got nuked
 
 
 ## PLEASE WATCH OUT FOR THIS GUY
