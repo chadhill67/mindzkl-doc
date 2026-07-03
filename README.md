@@ -15,5 +15,6 @@ i could list these all day but i'd be here for hours
 
 and also i tried saying hi today and he was so rude!!
 
+image 1: based on him lying saying he has 1.1m dollars which is such a lie
 
 ## PLEASE WATCH OUT FOR THIS GUY
