@@ -25,5 +25,7 @@ image 2: this i9s base on him and someone else im not going to name names hacked
 
 image 3: him trying to put the blame on me that nyua got nuked
 
+image 4: lying again
+
 
 ## PLEASE WATCH OUT FOR THIS GUY
