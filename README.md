@@ -12,6 +12,7 @@ What has clipxx done?
 5. Spreading rumoors
 6. SKIDDING
 7. NUKING PROJECTS (nyua)
+8. PINGING me every 2 hrs asking for help becuase he cant do shit
 
 i could list these all day but i'd be here for hours
 
